@@ -1,4 +1,4 @@
-# Privacy-policy-khana-ready
+Privacy-policy-khana-ready
 
 # Privacy Policy for Khana Ready
 
